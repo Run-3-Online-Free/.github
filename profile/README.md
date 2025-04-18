@@ -6,6 +6,8 @@
 
 *Run 3 Unblocked* is a **legendary endless runner** game that blends **platforming, gravity challenges, and space adventure** into one crazy experience. Originally developed as part of the *Run* series, this version lets you play **anytime, anywhere**—even on **school or office networks** where most games are blocked.
 
+## <a href="https://bit.ly/4jIVl1T">👉 Click To Play Run 3 Unblocked 👈</a>
+
 ![Run 3](https://github.com/user-attachments/assets/9dfbf322-fac3-4e6c-a2ed-7bdaf8fd5aef)
 
 ---
